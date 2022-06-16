@@ -27,7 +27,9 @@ This project welcomes contributions and suggestions.  Most contributions require
 Contributor License Agreement (CLA) declaring that you have the right to, and actually do, grant us
 the rights to use your contribution. For details, visit https://cla.microsoft.com.
 
-u₽A ©la$ დასტური
+u₽A_©la$ დასტური 
+
+i₽A©₾ჲ вARgaveliДЗЭ€ IBм₾ винтернахуzнель bunternჼ (Nu©leAr, ATOM, ბირтвjuli, яДерный и яДЗЭ€₽№ binÄR ATOM REAQTORS & Rymмdverket, эксперимонет Ö°ჼა_.₽Œntagoⴚ
 
 ![I₽A©LA_AuTo₽u3E](https://user-images.githubusercontent.com/102619282/174147340-4e61c678-479d-433c-a47f-7718fdd12db2.png)
 
